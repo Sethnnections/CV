@@ -17,11 +17,11 @@
 
 ## 1. Contact Information  
 - **Email:**  
-  sethpatiencemanguluti@outlook.com | psmanguluti@escom.mw  
+  sethpatiencemanguluti@outlook.com | patmanseth@gmail.com  
 - **Phone:**  
   +265 882 279 994 | +265 997 259 074  
 - **Address:**  
-  P.O. Box 2047, Blantyre, Malawi  
+  P.O. Box 1759, Blantyre, Malawi  
 - **GitHub:**  
   [github.com/Sethnnections](https://github.com/Sethnnections)  
 - **LinkedIn:**  
@@ -147,20 +147,19 @@ Mawira Secondary School | 2017
 
 1. **Grant Ulanje**  
    Senior Developer, ESCOM  
-   📧 gulanje@escom.mw | 📱 +265 999 197 165  
+   gulanje@escom.mw | +265 999 197 165  
 
 2. **Marc Kampira**  
    Director, Dream Code MW  
-   📧 mckampira@gmail.com | 📱 +265 999 746 941  
+   mckampira@gmail.com | +265 999 746 941  
 
 3. **T. Alindiamao**  
    Lecturer, Daeyang University  
-   📧 tchili21@gmail.com | 📱 +265 881 532 002  
+   tchili21@gmail.com | +265 881 532 002  
 
 ---
 
 ## 8. Declaration  
 *I certify the accuracy of this information to the best of my knowledge.*  
 
-**Date:** April 2024  
-**Digital Signature:** [Electronically Verified]  
+**Date:** April 2025
