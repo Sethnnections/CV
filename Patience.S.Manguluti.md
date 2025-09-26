@@ -17,7 +17,8 @@
 
 ## 1. Contact Information  
 - **Email:**  
-  sethpatiencemanguluti@outlook.com | patmanseth@gmail.com  
+  sethpatiencemanguluti@outlook.com | patmanseth@gmail.com |
+  patiecesethmanguluti@hotmail.com 
 - **Phone:**  
   +265 882 279 994 | +265 997 259 074  
 - **Address:**  
