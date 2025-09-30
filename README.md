@@ -1,5 +1,5 @@
 # Patience Seth Manguluti  
-**MERN Stack Developer | Power BI & DevOps Specialist**  
+**Full Stack Developer | Power BI & DevOps Specialist**  
 
 ---
 
